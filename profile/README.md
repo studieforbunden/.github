@@ -1,0 +1,3 @@
+## Studieförbunden
+
+Studieförbunden är de tio studieförbundens gemensamma intresseorganisation. Inom de tio studieförbunden möts en miljon individer varje år. Så vävs samhällsväven tät och tilliten stärks. Studieförbunden verkar i alla landets kommuner. Hos oss möts människor med olika bakgrunder, åsikter och livsåskådningar i gemensam aktivitet. De tio studieförbunden har olika inriktning och profil – alla idéburna och utan vinstintresse. Studieförbunden har funnits i över hundra år men blickar ständigt framåt. Vi står för fri bildning i hela Sverige, alltid på individens villkor och alltid tillsammans med andra.
