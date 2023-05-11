@@ -1,0 +1,2 @@
+# .github
+Studieförbunden i samverkan
